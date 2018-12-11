@@ -1,2 +1,2 @@
 # invie-github
-tus mejores guitarras invie-sibles<<<byplazi 
+tus mejores guitarras invie-sibles<<<byplazi/GitGithub 
